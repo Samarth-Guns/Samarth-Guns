@@ -2,4 +2,5 @@
   I’m Interested in Customization,Guns,Gaming
   Most Weirdly I love UpperCase Letter But Only When It Comes in Front of Letters 
   I’m Currently Learning 5th Grade
-  You Can Mail Me Using samarthguns@gmail.com
+  You Can Contact Me At
+  samarthguns@gmail.com
